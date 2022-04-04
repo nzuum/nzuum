@@ -1,1 +1,1 @@
-i love women
+i ❤ .mcfunction
